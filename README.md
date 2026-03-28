@@ -4,7 +4,7 @@
 <p align="center">
 <img src="https://i.postimg.cc/g2qpjWK9/Tumblr-l-2350923785220687.gif"width="900px"   />
 <p align="center">
-<img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . Naru or Nick, 17 soon 18 so below 15 be mindful of that ! I'm really friendly i never mind anyone sitting near me just whisp me !!!
+<img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . Naru or Nick, 18 so below 15 be mindful of that ! I'm really friendly i never mind anyone sitting near me just whisp me !!!
 <p align="center">
 <img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . proshippers and any deriving term or whatever leave me alone 
 you will be ignored or blocked dont approach me, Regardless if you actively participate or not if you have people in your circle that you "dont mind" do not interact thank you !
