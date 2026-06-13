@@ -1,6 +1,6 @@
 <p align="center">
 <img src="https://i.postimg.cc/FYc9F7wB/Tumblr-l-2392890039272335.png"width="120px"   />   <img src="https://i.postimg.cc/0zm85bh4/Tumblr-l-2392896848954363.png"width="120px"   />   <img src="https://i.postimg.cc/DSs2f8Rp/Tumblr-l-2392900433501914.png"width="120px"   />   <img src="https://i.postimg.cc/757xPfjj/Tumblr-l-4530311019635611.png"width="120px"   />     <img src="https://i.postimg.cc/Yvgp2hTV/Tumblr-l-2392898972149206.png"width="120px"   />    <img src="https://i.postimg.cc/w1J6x7n0/Tumblr-l-3646320549185798.png"width="120px"   /> 
-<img src="https://i.postimg.cc/T2JzHrnW/Untitled26-20260613131048.png"width="900px"   />
+<img src="https://i.postimg.cc/SNsznfrY/Untitled26-20260613133306.png"width="800px"   />
 <p align="center">
 <img src="https://i.postimg.cc/g2qpjWK9/Tumblr-l-2350923785220687.gif"width="900px"   />
 <p align="center">
@@ -19,6 +19,8 @@ i'm cautious with who i talk to if you have minimum braincells welcome to the cl
 <img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . extra useless info ; i'm a rogue of heart prospit dreamer (for homestuck likers), my mbti is enfp 2w3 sx/so neutral good sang-chol and i'm post hardcore emo i also multiship but generally have favorites !! My current interest is Spider-man
 <p align="center">
 <img src="https://i.postimg.cc/T3VvnbgC/glitter-text3.gif"width="900px"   />
+<p align="center">
+<img src="https://i.postimg.cc/k4q2qQG7/Untitled28-20260613133207.png"width="700px"   />
 <p align="center">
 <img src="https://i.postimg.cc/YSRtnH45/Tumblr-l-2350938123825161.gif"width="1000px"   />
   <p align="center">
