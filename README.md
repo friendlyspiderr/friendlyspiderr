@@ -4,6 +4,8 @@
 <p align="center">
 <img src="https://i.postimg.cc/g2qpjWK9/Tumblr-l-2350923785220687.gif"width="900px"   />
 <p align="center">
+<img src="https://i.postimg.cc/Rq5c45zz/Tumblr-l-1401189096100093.gif"width="600px"   />
+<p align="center">
 <img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . Naru or Pete(r), 18 so below 15 be mindful that i will not let you be in my close circle but we can be mutuals, otherwise above 16 int !! I'm really friendly i never mind anyone sitting near me just whisp me !!!
 <p align="center">
 <img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . proshippers and any deriving term or whatever leave me alone 
