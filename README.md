@@ -10,7 +10,7 @@
 <p align="center">
 <img src="https://i.postimg.cc/Rq5c45zz/Tumblr-l-1401189096100093.gif"width="600px"   />
 <p align="center">
-<img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . Naru or Pete(r), i am an adult 18 years old guy so below 15 be mindful that i will not let you be in my close circle but we can be mutuals, otherwise above 16 int !! I'm really friendly i never mind anyone sitting near me just whisp me !!! i'm a very very nerdy guy 
+<img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . Naru or Pete(r), i'm a grown ass man 18 years old guy so below 15 be mindful that i will not let you be in my close circle but we can be mutuals, otherwise above 16 int !! I'm really friendly i never mind anyone sitting near me just whisp me !!! i'm a very very nerdy guy 
 <p align="center">
 <img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . proshippers and any deriving term or whatever leave me alone 
 you will be ignored or blocked dont approach me, Regardless if you actively participate or not if you have people in your circle that you "dont mind" do not interact thank you !
