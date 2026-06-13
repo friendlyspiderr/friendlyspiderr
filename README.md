@@ -1,6 +1,5 @@
 <p align="center">
 <img src="https://i.postimg.cc/FYc9F7wB/Tumblr-l-2392890039272335.png"width="120px"   />   <img src="https://i.postimg.cc/0zm85bh4/Tumblr-l-2392896848954363.png"width="120px"   />   <img src="https://i.postimg.cc/DSs2f8Rp/Tumblr-l-2392900433501914.png"width="120px"   />   <img src="https://i.postimg.cc/757xPfjj/Tumblr-l-4530311019635611.png"width="120px"   />     <img src="https://i.postimg.cc/Yvgp2hTV/Tumblr-l-2392898972149206.png"width="120px"   />    <img src="https://i.postimg.cc/w1J6x7n0/Tumblr-l-3646320549185798.png"width="120px"   /> 
-<img src="https://i.postimg.cc/SNsznfrY/Untitled26-20260613133306.png"width="800px"   />
 <p align="center">
 <img src="https://i.postimg.cc/g2qpjWK9/Tumblr-l-2350923785220687.gif"width="900px"   />
 <p align="center">
