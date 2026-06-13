@@ -28,7 +28,7 @@ i'm cautious with who i talk to if you have minimum braincells welcome to the cl
 <p align="center">
 <img src="https://i.postimg.cc/YSRtnH45/Tumblr-l-2350938123825161.gif"width="1000px"   />
   <p align="center">
-<img src="https://i.postimg.cc/J72qhvQ5/eefded365683f72a033380a8e7ae6657.gif"width="700px"   />
+<img src="https://i.postimg.cc/brfyPbTd/ef246b0efc59197a3bb632ad05a86473.jpg"width="700px"   />
   <p align="center">
 finnspider on twitter and potatojit for creds of the graphic i made
 
