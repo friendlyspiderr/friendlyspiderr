@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://i.postimg.cc/SKPRwB8q/Untitled29-20260613141116.png"width="800px"   />  
+<img src="https://i.postimg.cc/SKPRwB8q/Untitled29-20260613141116.png "width="800px"   />  
 <a href="https://hits.sh/github.com/friendlyspiderr/">
 <p align="center">
 <img alt="Hits" src="https://hits.sh/github.com/friendlyspiderr.svg?style=plastic&label=New%20yorkers&extraCount=8500000&color=3c3c3c&labelColor=f75e0b&logo=%F0%9F%95%B8%EF%B8%8F"/></a>
