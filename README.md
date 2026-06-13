@@ -1,6 +1,5 @@
 <p align="center">
-<img src="https://i.postimg.cc/FYc9F7wB/Tumblr-l-2392890039272335.png"width="120px"   />   <img src="https://i.postimg.cc/0zm85bh4/Tumblr-l-2392896848954363.png"width="120px"   />   <img src="https://i.postimg.cc/DSs2f8Rp/Tumblr-l-2392900433501914.png"width="120px"   />   <img src="https://i.postimg.cc/757xPfjj/Tumblr-l-4530311019635611.png"width="120px"   />     <img src="https://i.postimg.cc/Yvgp2hTV/Tumblr-l-2392898972149206.png"width="120px"   />    <img src="https://i.postimg.cc/w1J6x7n0/Tumblr-l-3646320549185798.png"width="120px"   /> 
-<a href="https://hits.sh/github.com/friendlyspiderr/"> 
+<img src="https://i.postimg.cc/SKPRwB8q/Untitled29-20260613141116.png"width="800px"   />  
 <a href="https://hits.sh/github.com/friendlyspiderr/">
 <p align="center">
 <img alt="Hits" src="https://hits.sh/github.com/friendlyspiderr.svg?style=plastic&label=New%20yorkers&extraCount=8500000&color=3c3c3c&labelColor=f75e0b&logo=%F0%9F%95%B8%EF%B8%8F"/></a>
