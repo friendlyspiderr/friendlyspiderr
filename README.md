@@ -9,8 +9,9 @@
 <img src="https://i.postimg.cc/g2qpjWK9/Tumblr-l-2350923785220687.gif"width="900px"   />
 <p align="center">
 <img src="https://i.postimg.cc/Rq5c45zz/Tumblr-l-1401189096100093.gif"width="600px"   />
+<summary>info</summary>
 <p align="center">
-<img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . Naru or Pete(r), i'm a grown ass man 18 year old guy so below 15 be mindful that i will not let you be in my close circle but we can be mutuals, otherwise above 16 int !! I'm really friendly i never mind anyone sitting near me just whisp me !!! i'm a very very nerdy guy 
+<p></p><img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . Naru or Pete(r), i'm a grown ass man 18 year old guy so below 15 be mindful that i will not let you be in my close circle but we can be mutuals, otherwise above 16 int !! I'm really friendly i never mind anyone sitting near me just whisp me !!! i'm a very very nerdy guy 
 <p align="center">
 <img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . proshippers and any deriving term or whatever leave me alone 
 you will be ignored or blocked dont approach me, Regardless if you actively participate or not if you have people in your circle that you "dont mind" do not interact thank you !
@@ -20,7 +21,7 @@ you will be ignored or blocked dont approach me, Regardless if you actively part
 <img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . i'm fond of making new friends im actually cool with it even tho i'm very opinionated, 
 i'm cautious with who i talk to if you have minimum braincells welcome to the club ! I like nerding out a lot, talk to me about stuff you get interested in i really like debating about my interest aswell
 <p align="center">
-<img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . extra useless info ; i'm a rogue of heart prospit dreamer (for homestuck likers), my mbti is enfp 2w3 sx/so neutral good sang-chol and i'm post hardcore emo i also multiship but generally have favorites !! My current interest is Spider-man
+<img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . extra useless info ; i'm a rogue of heart prospit dreamer (for homestuck likers), my mbti is enfp 2w3 sx/so neutral good sang-chol and i'm post hardcore emo i also multiship but generally have favorites !! My current interest is Spider-man</p>
 <p align="center">
 <img src="https://i.postimg.cc/T3VvnbgC/glitter-text3.gif"width="900px"   />
 <p align="center">
