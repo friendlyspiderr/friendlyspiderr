@@ -52,21 +52,8 @@
 <summary>know more </summary>
   
 <p align="center">
-</p><img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . Naru or Pete(r), i'm a grown ass man 18 year old guy so below 15- dni or iwec. Be mindful that i will not let you be in my close circle/friends but i wont be hostile. I'm mainly on safe. Otherwise 16 and above int !! I'm really friendly i never mind anyone sitting near me just whisp me !!! i'm a very very nerdy guy
+</p><img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . hello
 
-<p align="center">
-<img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . proshippers and any deriving term or whatever leave me alone 
-you will be ignored or blocked dont approach me, Regardless if you actively participate or not if you have people in your circle that you "dont mind" do not interact thank you !
-
-<p align="center">
-<img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . You can interact with me anytime, i'm probably offtab busy somewhere, whisp me to catch my attention !
-
-<p align="center">
-<img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . i'm fond of making new friends im actually cool with it even tho i'm very opinionated, 
-i'm cautious with who i talk to if you have minimum braincells welcome to the club ! I like nerding out a lot, talk to me about stuff you get interested in i really like debating about my interest aswell
-
-<p align="center">
-<img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . extra useless info ; i'm a rogue of heart prospit dreamer (for homestuck likers), i'm enfp 2w1 sx/so 269 neutral good sang-chol SLUAI and i'm post hardcore emo i also multiship but generally have favorites !! My current interest is Spider-man</p>
   </details>
 </body>
 </html>
