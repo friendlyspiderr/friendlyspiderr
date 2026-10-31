@@ -67,6 +67,10 @@ you will be ignored or blocked dont approach me, Regardless if you actively part
   </td>
 
   <td align="center" width="40%">
+    <br>
+  <details>
+<summary> $\color{#ff9635}{\textsf{Interests ᶻ 𝗓 𐰁 .ᐟ}}$ </summary>
+    </p><img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . i have low social battery depending on the setting, i love love love meeting new people and 1v1 interactions especially with people with similar interests ! I'm neurodivergent, i have audhd if i miss few texts please don't take it personally! I'm very talkative and nerdy so there really is no issue
   </details>
 </body>
 </html>
