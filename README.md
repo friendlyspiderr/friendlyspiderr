@@ -63,7 +63,7 @@
 you will be ignored or blocked dont approach me, Regardless if you actively participate or not if you have people in your circle that you "dont mind" do not interact thank you ! otherwise basic dni 
 </td>
 
-  <td align="center" width="20%">
+  <td align="center" width="30%">
     <img src="https://i.postimg.cc/y8tYr8hY/Untitled88-20261031162334.png" width="600"/>
   </td>
 
@@ -80,7 +80,7 @@ you will be ignored or blocked dont approach me, Regardless if you actively part
     </tr>
   </table>
   <td align="center" width="20%">
-    <img src="https://i.postimg.cc/fLGMB2Yj/Tumblr-l-1527675635550468.gif" width="300"/>
+    <img src="https://i.postimg.cc/fLGMB2Yj/Tumblr-l-1527675635550468.gif" width="800"/>
 <p align="center">
 <img src="https://i.postimg.cc/T3VvnbgC/glitter-text3.gif"width="900px"   />
 <p align="center">
