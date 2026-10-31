@@ -44,7 +44,7 @@
     </tr>
   </table>
 <p align="center">
-<img src="https://i.postimg.cc/pdWhJ7qy/Tumblr-l-1527858777986991.gif "width="800px"   />
+<img src="https://i.postimg.cc/pdWhJ7qy/Tumblr-l-1527858777986991.gif "width="600px"   />
 <br>
 <br>
   <table>
