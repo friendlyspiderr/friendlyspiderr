@@ -70,7 +70,7 @@ you will be ignored or blocked dont approach me, Regardless if you actively part
     <br>
   <details>
 <summary> $\color{#ff9635}{\textsf{Interests ᶻ 𝗓 𐰁 .ᐟ}}$ </summary>
-    </p><img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . i have low social battery depending on the setting, i love love love meeting new people and 1v1 interactions especially with people with similar interests ! I'm neurodivergent, i have audhd if i miss few texts please don't take it personally! I'm very talkative and nerdy so there really is no issue
+    </p><img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . Spider-man, marvel comics except avengers (not my cup of tea sorry guys), horror related media in any shape or form (from deep niche ARG to horror games honestly anything), enneagram and typing (mostly interested in subtypes and tritypes i like psychosophy too), Alternative subcultures and politics ( emo, screamo midwest emo, vkei, gothic), i'm a flower nerd i really like flowers, i do photography in my free time, Homestuck, dungeon and dragon, smash bross ultimate, Identity V, Marvel rivals, Overwatch, deadlock A LOT of other media aswell just ask me about it ! Those are just my current interest. I'm also a multishipper, i really love spideypool, spideytorch, spidercat and petermj. I appreciate Gwenpeter i'm just an Mj truther ! i also love mj x felicia. I watched billions of anime so you can really talk about anything i have AT LEAST heard of it except if it's isekai.
   </details>
 </body>
 </html>
