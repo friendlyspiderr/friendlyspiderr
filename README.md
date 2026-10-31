@@ -15,7 +15,7 @@
     <tr>
       <td>
         <p align="center">
-         $\color{#FF2BB5}{\textsf{Pete(r) /  Nick /  Naru ! ⊹ ࣪ ˖}$
+         $\color{#FF2BB5}{\textsf{Pete(r) /  Nick /  Naru ! ⊹ ࣪ ˖}}
           <p align="center">
           he/him . mlm 18y 
            </p>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
