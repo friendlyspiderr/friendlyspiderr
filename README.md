@@ -18,6 +18,20 @@
          $\color{#ff9635}{\textsf{Pete(r) /  Nick /  Naru ! ⊹ ࣪ ˖}}$
           <p align="center">
           $\color{#ff9635}{\textsf{he/him . mlm ⋆˙⟡ 18y }}$
+          <p align="center">
+          $\color{#ff9635}{\textsf{ Hello ! If you found }}$
+          <p align="center">
+          $\color{#ff9635}{\textsf{my github you might come from ponytown so,}}$
+          <p align="center">
+          $\color{#ff9635}{\textsf{w2i i'm mainly offtab and }}$
+          <p align="center">
+          $\color{#ff9635}{\textsf{distracted i disconnect a lot because of}}$
+          <p align="center">
+          $\color{#ff9635}{\textsf{the annoying 15 minutes}}$
+          <p align="center">
+          $\color{#ff9635}{\textsf{time limit and i can't really check pt mid match if}}$
+          <p align="center">
+          $\color{#ff9635}{\textsf{i play }}$
            </p>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
       </td>
     </tr>
