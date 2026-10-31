@@ -58,7 +58,7 @@
 </td>
 
   <td align="center" width="20%">
-    <img src="https://i.postimg.cc/vmjtcbtV/Untitled87-20261031152454.png" width="200"/>
+    <img src="https://i.postimg.cc/vmjtcbtV/Untitled87-20261031152454.png" width="600"/>
   </td>
 
   <td align="center" width="40%">
