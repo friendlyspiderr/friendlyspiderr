@@ -64,7 +64,7 @@ you will be ignored or blocked dont approach me, Regardless if you actively part
 </td>
 
   <td align="center" width="20%">
-    <img src="https://i.postimg.cc/vmjtcbtV/Untitled87-20261031152454.png" width="600"/>
+    <img src="https://i.postimg.cc/y8tYr8hY/Untitled88-20261031162334.png" width="600"/>
   </td>
 
   <td align="center" width="40%">
