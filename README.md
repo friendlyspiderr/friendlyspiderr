@@ -54,7 +54,7 @@
   <details>
 <summary> $\color{#ff9635}{\textsf{Dni / Byi 🕸️๋࣭ ⭑ }}$ </summary>
   
-<p align="center">
+<p align="center" width="40%">
 </p><img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . i have low social battery depending on the setting, i love love love meeting new people and 1v1 interactions especially with people with similar interests ! I'm neurodivergent, i have audhd if i miss few texts please don't take it personally! I'm very talkative and nerdy so there really is no issue
 <p align="center">
 </p><img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . -16 dni UNLESS i know you ! I'm mainly on safe so if you are minor and we interacted for whatever reason i won't kill you i just won't be close to you
@@ -67,7 +67,7 @@ you will be ignored or blocked dont approach me, Regardless if you actively part
     <img src="https://i.postimg.cc/y8tYr8hY/Untitled88-20261031162334.png" width="600"/>
   </td>
 
-  <td align="center" width="40%">
+  <td align="center" width="35%">
     <br>
   <details>
 <summary> $\color{#ff9635}{\textsf{Interests ᶻ 𝗓 𐰁 .ᐟ}}$ </summary>
