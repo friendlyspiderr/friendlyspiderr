@@ -9,6 +9,20 @@
 <img src="https://i.postimg.cc/g2qpjWK9/Tumblr-l-2350923785220687.gif"width="900px"   />
 <p align="center">
 <img src="https://i.postimg.cc/Rq5c45zz/Tumblr-l-1401189096100093.gif"width="600px"   />
+<br>
+<br>
+  <table>
+    <tr>
+      <td>
+        <p align="center">
+         $\color{#FF2BB5}{\textsf{Pete(r) /  Nick /  Naru ! ⊹ ࣪ ˖}$
+          <p align="center">
+          he/him . mlm 18y 
+           </p>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+      </td>
+    </tr>
+  </table>
+     <p align="center">
   <details>
 <summary>know more </summary>
   
