@@ -49,7 +49,7 @@
       <td>
      <p align="center">
   <details>
-<summary> Dni / Byi 🕸️๋࣭ ⭑ </summary>
+<summary> $\color{#ff9635}{\textsf{Dni / Byi 🕸️๋࣭ ⭑ }}$ </summary>
   
 <p align="center">
 </p><img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . hello
