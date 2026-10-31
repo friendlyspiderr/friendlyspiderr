@@ -21,6 +21,7 @@
           $\color{#ff9635}{\textsf{Pete(r) /  Nick /  Naru ! ⊹ ࣪ ˖}}$
           <p align="center">
           $\color{#ff9635}{\textsf{he/him . mlm ⋆˙⟡ 18y }}$
+          <img src="https://i.postimg.cc/8ckYbTxg/Tumblr-l-1346302406092302.gif" width="100" alt="mylilpony"> <br>
           <p align="center">
           $\color{#ff9635}{\textsf{ Hello ! If you found }}$
           <p align="center">
