@@ -10,7 +10,7 @@
 <p align="center">
 <img src="https://i.postimg.cc/Rq5c45zz/Tumblr-l-1401189096100093.gif"width="600px"https://i.postimg.cc/vmjtcbtV/Untitled87-20261031152454.png)/>
 <div align="center">
-<img src="https://i.postimg.cc/vmjtcbtV/Untitled87-20261031152454.png" width="250" align="right"   />
+<img src="https://i.postimg.cc/ZKqdG0NK/Untitled87-20261031163341.png="250" align="right"   />
 <p align="center">
 <br>
 <br>
