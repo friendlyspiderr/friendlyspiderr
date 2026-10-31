@@ -39,6 +39,12 @@
       </td>
     </tr>
   </table>
+
+<br>
+<br>
+  <table>
+    <tr>
+      <td>
      <p align="center">
   <details>
 <summary>know more </summary>
@@ -62,6 +68,11 @@ i'm cautious with who i talk to if you have minimum braincells welcome to the cl
   </details>
 </body>
 </html>
+           </p>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+      </td>
+    </tr>
+  </table>
+
 <p align="center">
 <img src="https://i.postimg.cc/T3VvnbgC/glitter-text3.gif"width="900px"   />
 <p align="center">
