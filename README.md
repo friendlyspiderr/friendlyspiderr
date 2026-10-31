@@ -25,6 +25,8 @@
           $\color{#ff9635}{\textsf{he/him . mlm ⋆˙⟡ 18y }}$ <br>
           <p align="center">
           $\color{#ff9635}{\textsf{ENFP sx/so 269 2w1 sang-chol}}$ <br>
+          <p align="center">
+          $\color{#ff9635}{\textsf{post hardcore emo}}$ <br>
           <br>
           <img src="https://i.postimg.cc/8ckYbTxg/Tumblr-l-1346302406092302.gif" width="300" alt="mylilpony"> <br>
           <p align="center">
