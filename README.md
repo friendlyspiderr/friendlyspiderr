@@ -8,16 +8,17 @@
 <p align="center">
 <img src="https://i.postimg.cc/g2qpjWK9/Tumblr-l-2350923785220687.gif"width="900px"   />
 <p align="center">
-<img src="https://i.postimg.cc/Rq5c45zz/Tumblr-l-1401189096100093.gif"width="600px"[   ](https://i.postimg.cc/vmjtcbtV/Untitled87-20261031152454.png)/>
+<img src="https://i.postimg.cc/Rq5c45zz/Tumblr-l-1401189096100093.gif"width="600px"https://i.postimg.cc/vmjtcbtV/Untitled87-20261031152454.png)/>
 <div align="center">
 <img src="https://i.postimg.cc/vmjtcbtV/Untitled87-20261031152454.png" width="250" align="right" alt="luckystar   />
+<p align="center">
 <br>
 <br>
   <table>
     <tr>
       <td>
         <p align="center">
-         $\color{#ff9635}{\textsf{Pete(r) /  Nick /  Naru ! ⊹ ࣪ ˖}}$
+          $\color{#ff9635}{\textsf{Pete(r) /  Nick /  Naru ! ⊹ ࣪ ˖}}$
           <p align="center">
           $\color{#ff9635}{\textsf{he/him . mlm ⋆˙⟡ 18y }}$
           <p align="center">
