@@ -29,9 +29,9 @@
           <p align="center">
           $\color{#ff9635}{\textsf{the annoying 15 minutes}}$
           <p align="center">
-          $\color{#ff9635}{\textsf{time limit and i can't really check pt mid match if}}$
+          $\color{#ff9635}{\textsf{time limit and i can't really check pt in the}}$
           <p align="center">
-          $\color{#ff9635}{\textsf{i play }}$
+          $\color{#ff9635}{\textsf{middle of a match if i play, but always int! }}$
            </p>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
       </td>
     </tr>
