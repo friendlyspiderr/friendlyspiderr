@@ -17,6 +17,8 @@
   <table>
     <tr>
       <td>
+          <img src="https://i.postimg.cc/MTvyyTYK/Untitled89-20261031164915.png" width="300" alt="mylilpony"> <br>
+          <p align="center">
         <p align="center">
           $\color{#ff9635}{\textsf{Pete(r) /  Nick /  Naru ! ⊹ ࣪ ˖}}$
           <p align="center">
