@@ -21,6 +21,8 @@
           $\color{#ff9635}{\textsf{Pete(r) /  Nick /  Naru ! ⊹ ࣪ ˖}}$
           <p align="center">
           $\color{#ff9635}{\textsf{he/him . mlm ⋆˙⟡ 18y }}$ <br>
+          <p align="center">
+          $\color{#ff9635}{\textsf{ENFP sx/so 269 2w1 sang-chol}}$ <br>
           <br>
           <img src="https://i.postimg.cc/8ckYbTxg/Tumblr-l-1346302406092302.gif" width="300" alt="mylilpony"> <br>
           <p align="center">
@@ -52,9 +54,9 @@
 <summary> $\color{#ff9635}{\textsf{Dni / Byi 🕸️๋࣭ ⭑ }}$ </summary>
   
 <p align="center">
-</p><img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . hello
+</p><img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . i have low social battery depending on the setting, i love love love meeting new people and 1v1 interactions especially with people with similar interests ! I'm neurodivergent, i have audhd if i miss few texts please don't take it personally! I'm very talkative and nerdy so there really is no issue
 <p align="center">
-</p><img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . hello
+</p><img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . -16 dni UNLESS i know you ! I'm mainly on safe so if you are minor and we interacted for whatever reason i won't kill you i just won't be close to you 
 </td>
 
   <td align="center" width="20%">
