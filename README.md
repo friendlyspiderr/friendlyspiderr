@@ -49,11 +49,19 @@
       <td>
      <p align="center">
   <details>
-<summary>know more </summary>
+<summary> Dni / Byi 🕸️๋࣭ ⭑ </summary>
   
 <p align="center">
 </p><img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . hello
+<p align="center">
+</p><img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . hello
+</td>
 
+  <td align="center" width="20%">
+    <img src="https://file.garden/ZRfaX7xMiQQHiMQP/graphics/meowgariita/gifs/pinkiepiecutesparkle.gif" width="200"/>
+  </td>
+
+  <td align="center" width="40%">
   </details>
 </body>
 </html>
