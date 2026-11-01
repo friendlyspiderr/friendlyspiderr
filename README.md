@@ -28,7 +28,7 @@
           <p align="center">
           $\color{#ff9635}{\textsf{post hardcore emo}}$ <br>
           <br>
-          <img src="https://i.postimg.cc/8ckYbTxg/Tumblr-l-1346302406092302.gif" width="300" alt="mylilpony"> <br>
+          <img src="https://i.postimg.cc/8ckYbTxg/Tumblr-l-1346302406092302.gif" width="300"> <br>
           <p align="center">
           $\color{#ff9635}{\textsf{ Hello ! If you found }}$
           <p align="center">
